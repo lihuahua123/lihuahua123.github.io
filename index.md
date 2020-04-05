@@ -4,7 +4,7 @@
 
 **基本信息：** 李锐 / 女 / 21&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;**现&ensp;在&ensp;地：** 天津市
 
-**手&ensp;机&ensp;号：** 178 xxxx xxxx&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;**邮&emsp;&emsp;箱：** mwoo2827@gmail.com
+**手&ensp;机&ensp;号：** 178 xxxx xxxx&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;**邮&emsp;&emsp;箱：** mwoo2827@gmail.com
 
 **证&emsp;&emsp;书：** 英语四/六级&emsp;&emsp;&emsp;&emsp;&ensp;**实习经验：** x年
 
